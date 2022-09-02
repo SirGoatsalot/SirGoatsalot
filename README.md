@@ -1,7 +1,7 @@
 Professional Dirtbag
 
+Proud Heelies Owner
+
 Instant Ramen Enthusiast
 
-Thoroughly enjoys grabbing rocks
 
-Makes code for funsies
